@@ -17,7 +17,7 @@
 
 <br/><br/>
 
-### 🎮 **[👉 Haz clic aquí para jugar Wizard Survival en Roblox 👈](https://www.roblox.com/es/games/121152223798271/Wizard-Survival)**
+### 🎮 **[👉 Click here to play Wizard Survival on Roblox 👈](https://www.roblox.com/es/games/121152223798271/Wizard-Survival)**
 
 <br/>
 
